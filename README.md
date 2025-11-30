@@ -1,1 +1,1 @@
-alone is better sometimes, I don't have to carry all those thoughts
+gonna rmk thz later
