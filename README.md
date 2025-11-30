@@ -7,9 +7,11 @@
 
 
 ╰┈➤  Pronouns  : he/they or xe [ PARABOY
+-
        .     𓇬⋆ ﾟ꩜‧˚𑁍ܓ
 
- ⋆. 𐙚 ˚ Artist  |  Character creator  |  animator youtuber    
+ ⋆. 𐙚 ˚ Artist  |  Character creator  |  animator youtuber
+-    
 
 
  Learning Japanese   
