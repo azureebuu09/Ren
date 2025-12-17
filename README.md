@@ -1,20 +1,20 @@
-# 🌀 Azure 🌧 ᶻ 𝘇 𐰁
+# souki   ᶻ 𝘇 𐰁
 
-        ♡🎧  |◁   II   ▷|  ↺
+          |◁   II   ▷|  ↺
+INFP-T
+
+∘₊──────₊∘        
 
 
-∘₊✧──────✧₊∘     .   
+╰┈➤  Pronouns  : he/they or she
 
+       .      ⋆  𑁍ܓ
 
-╰┈➤  Pronouns  : he/they or xe [ PARABOY
--
-       .     𓇬⋆ ﾟ꩜‧˚𑁍ܓ
-
- ⋆. 𐙚 ˚ Artist  |  Character creator  |  animator youtuber
--    
+ -  ˚ Artist  |  Character creator  |  animator youtuber
+   
 
 
  Learning Japanese   
--
+
 .      . 
-just to remind you - I have social anxiety, ADHD, hypersensitivity, shy-secure, overthinking, selective mutism, insomia, limited WiFi time
+I sometimes get distant and withdrawn I hope that's okay with u! 
